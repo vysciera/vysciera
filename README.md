@@ -1,3 +1,1 @@
-![yeah](him.png)
 
-yeah.
